@@ -1,2 +1,2 @@
-# Japan.github.io
-Japan adventure
+# Japan Trip
+Japan top places
